@@ -53,6 +53,9 @@ I look forward to the moment I have seen the whole world -and of course to every
 
 and the moment I lift the trophy of the PDC World Darts Championship!
 
+> “Belief creates the actual fact.”
+> — William James
+
 ## Teamwork dreamwork
 1. Shared trouble, shared responsibilities, shared pain
 2. Twice, thrice, whateverice as fast -in perfect conditions-
