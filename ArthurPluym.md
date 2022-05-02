@@ -60,3 +60,12 @@ and the moment I lift the trophy of the PDC World Darts Championship!
 
 ## Just a random gif
 ![Cartman](200w.gif)
+
+### References
+- [King Arthur](https://www.youtube.com/watch?v=AmtSj4wH5Rg)
+- [Cartman](https://www.southparkstudios.com/)
+
+### Accounts
+- [Chess](https://www.chess.com/member/guinevereshusband)
+- [Twitch](https://www.twitch.tv/guinevereshusband)
+
